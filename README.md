@@ -46,4 +46,4 @@ Journal of the American Helicopter Society 2023
 ## Demonstration
 
 YouTube:
-([링크](https://www.youtube.com/channel/UCkfK8OKbvtlz3jfgJcmo60Q))
+([Link](https://www.youtube.com/channel/UCkfK8OKbvtlz3jfgJcmo60Q))
